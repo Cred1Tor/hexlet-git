@@ -1,1 +1,0 @@
-Tenderness on a paper
